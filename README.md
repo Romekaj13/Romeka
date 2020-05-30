@@ -1,2 +1,2 @@
 # Romeka
-Nice,kind,funnyand others
+Nice, kind, funny, and others
